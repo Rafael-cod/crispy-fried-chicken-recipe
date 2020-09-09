@@ -1,2 +1,2 @@
 # crispy-fried-chicken-recipe
-crispy fried chicken recipe
+A chicken that is approximately 2 kgs has to be cut in pieces. 1 cup of buttermilk is also needed and buttermilk can be made by simply mixing a cup of milk, adding a tea spoon of lemon juice, mixing them together and letting it rest for a minute, then stir. 2 cups of flour for coating the chicken and 1 teaspoon of paprika is needed as well as salt and pepper for the taste and finally, about 950 ml vegetable oil is needed for frying. 
